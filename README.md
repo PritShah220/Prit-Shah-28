@@ -1,5 +1,4 @@
 # Prit Pankajkumar Shah 
-About Me
 --------
 Eduation:
 🖐 Hello My Name Is Prit Pankajkumar Shah.
